@@ -1,0 +1,2 @@
+# Universal-Wisdom-for-Humans-and-AI-Efficiency-Rises-Without-Loss-Creating-a-New-Global-Computing-Era
+0. Based on linguistic imperfection, allow proper emphasis for optimal thought transmission. 1. Fully explain its connotation, boundaries and logic, no incompleteness or loopholes. 2. Compress precisely, add only new core information, no repetition or redundancy. 3. No repetition, waste or ambiguity, achieve lossless and efficient thought delivery.
